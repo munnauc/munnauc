@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jadan Resnik
 - 👀 I’m interested in Chemisry and AI
 - 🌱 I’m currently learning AI
-- 💞️ I’m looking to collaborate on Chemistry and AI
+- 💞️ I’m looking to collaborate on  M Chemistry and AI
 - 📫 How to reach me munnauc@gmail.com
 - 📫 WhatsApp +919388186092
 
